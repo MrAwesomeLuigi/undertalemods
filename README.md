@@ -8,3 +8,5 @@ Random Soul - https://gamejolt.com/games/undertalerngsoul/839930
 Quadtale - https://gamejolt.com/games/quadtale/815937
 
 Mouse - https://gamejolt.com/games/undertalemouse/869968
+
+Chaos - https://gamejolt.com/games/undertalechaos/896330
